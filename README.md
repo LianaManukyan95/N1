@@ -1,4 +1,24 @@
 # N1
+Kiss me hard before you go
+Summertime sadness
+I just wanted you to know
+That baby you're the best
+
+I got my red dress on tonight
+Dancing in the dark in the pale moonlight
+Got my hair up real big beauty queen style
+High heels off, I'm feeling alive
+
+Oh, my God, I feel it in the air
+Telephone wires above are sizzling like a snare
+Honey I'm on fire, I feel it everywhere
+Nothing scares me anymore
+
+Kiss me hard before you go
+Summertime sadness
+I just wanted you to know
+That baby you're the best
+
 I've got that summertime, summertime sadness
 S-s-summertime, summertime sadness
 Got that summertime, summertime sadness
@@ -18,3 +38,8 @@ Kiss me hard before you go
 Summertime sadness
 I just wanted you to know
 That baby you're the best
+
+I've got that summertime, summertime sadness
+S-s-summertime, summertime sadness
+Got that summertime, summertime sadness
+Oh, oh oh
